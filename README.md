@@ -1,0 +1,6 @@
+- Hi, I’m @ToyaAoygai
+-  I’m interested in ... Drawing
+-  I’m looking to collaborate on ... really nothing :)
+-  How to reach me ... ._._.toya._.akito._._ on TikTok
+-  Pronouns: ... He/Him
+-  Fun fact: ... My Fav Chara is Toya Aoyagi,Akito Shinonome(from Pjsk),Tails The Fox, Cream The Rabbit in SEGA
